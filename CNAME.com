@@ -1,1 +1,1 @@
-www.docrazyg.com
+docrazyg.com
